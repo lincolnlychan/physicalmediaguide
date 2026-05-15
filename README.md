@@ -1,6 +1,4 @@
 # The Ultimate Physical Media Guide
-Ultimate Guide to start and set up a physical media collection from scratch 
-
 
 ### Table Of Contents
 
