@@ -49,6 +49,6 @@ You should choose 4K Blu-Ray if you have a TV that can play in 4K
 
 If you are buying brand new, buy Blu-Ray or 4K Blu-Ray based on your perference and budget, and avoid buying brand new DVDs at all cost unless they are really cheap.
 
-### Want to offer me a job? There is my [Linkedlin](https://www.linkedin.com/in/lincoln-chan-0a5a60346/)
+### There is my [Linkedlin](https://www.linkedin.com/in/lincoln-chan-0a5a60346/)
 
 
