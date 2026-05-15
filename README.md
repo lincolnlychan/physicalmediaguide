@@ -36,10 +36,15 @@ You should go to second hand stores that sell DVD, Blu-Rays and 4K Blu-Rays and 
 
 ### Format Selection
 This is based on the assumption that you are choosing from second hand DVD, Blu-Rays and 4K Blu-Rays
+
 TLDR(have budget): Bluray > 4K Bluray 
+
 TLDR(Unlimited Budget): 4K Bluray > Bluray 
+
 You should choose Blu-Rays most of the time, its anti scratch layer makes it more durable than DVD, it is higher quality than DVD (1080p vs 480p) 
+
 You should choose 4K Blu-Ray if you have a TV that can play in 4K
+
 **You should avoid buying DVDs at all cost unless films and TV Shows/TV series or their special features are only in DVD**
 
 If you are buying brand new, buy Blu-Ray or 4K Blu-Ray based on your perference and budget, and avoid buying brand new DVDs at all cost unless they are really cheap.
