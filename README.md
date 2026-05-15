@@ -26,7 +26,7 @@ Ultimate Guide to start and set up a physical media collection from scratch
 You should choose the video players in the following order:
 Players that are able to play 4K Blu-Rays > Players that are able to play Blu-Rays > Players that are able to play DVDs
 
-You should avoid buying second hand video players as you don't know the history of player heads, or laser pickup units/how hard have the player heads, or laser pickup units been used 
+You should avoid buying second hand video players as you don't know the history of player heads, or laser pickup units/ how hard have the player heads, or laser pickup units been used 
 
 ### Film-Selection
 You should use legal streaming services like Disney+ to identify the films and TV Shows/TV series that you are going to watch 2+ times. These films and TV Shows/TV series are what you should own in a physical format
