@@ -14,7 +14,7 @@
 
 ### Why
 - DVD, Blu-Rays and 4K Blu-Rays are yours forever, no one can take them from you
-- Blu-rays and 4K Blu-Rays generally has very high bitrates in video and audio
+- Blu-rays and 4K Blu-Rays generally has very high bitrates in both video and audio tracks
 - It doesn't require any internet connections
 - Blu-Rays and some DVDs often have special features and director commentary that are not available online
 - Second Hand DVD and Blu-Rays are cheap and plentiful
