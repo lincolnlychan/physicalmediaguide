@@ -29,7 +29,7 @@ Players that are able to play 4K Blu-Rays > Players that are able to play Blu-Ra
 You should avoid buying second hand video players as you don't know the history of player heads, or laser pickup units/ how hard have the player heads, or laser pickup units been used 
 
 ### Film-Selection
-You should use legal streaming services like Disney+ to identify the films and TV Shows/TV series that you are going to watch 2+ times. These films and TV Shows/TV series are what you should own in a physical format
+You should use legal streaming services like Disney+ to identify the films and TV Shows/TV series that you are going to watch 2+ times. These films and TV Shows/TV series are what you should own in a physical format.
 
 ### Where-to-buy
 You should go to second hand stores that sell DVD, Blu-Rays and 4K Blu-Rays and thrift store first to buy DVD, Blu-Rays and 4K Blu-Rays. Only after that you should buy brand new Blu-Rays and 4K Blu-Rays online or in person.
