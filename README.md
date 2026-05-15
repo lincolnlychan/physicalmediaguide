@@ -32,7 +32,7 @@ You should avoid buying second hand video players as you don't know the history 
 You should use legal streaming services like Disney+ to idenify the films and TV Shows/TV series that you are going to watch 2+ times. These films and TV Shows/TV series are what you should own in a physical format
 
 ### Where-to-buy
-You should go to second hand stores that sell DVD, Blu-Rays and 4K Blu-Rays and thrift store first to buy DVD, Blu-Rays and 4K Blu-Rays. only after that you should buy brand new Blu-Rays and 4K Blu-Rays online or in person.
+You should go to second hand stores that sell DVD, Blu-Rays and 4K Blu-Rays and thrift store first to buy DVD, Blu-Rays and 4K Blu-Rays. Only after that you should buy brand new Blu-Rays and 4K Blu-Rays online or in person.
 
 ### Format Selection
 This is based on the assumption that you are choosing from second hand DVD, Blu-Rays and 4K Blu-Rays
