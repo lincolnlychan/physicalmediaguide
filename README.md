@@ -30,7 +30,9 @@ You should avoid buying second hand video players as you don't know the history 
 PlayStation 3-5 and Xbox One/Series can play Blu-Rays and DVDs
 
 ### Film-Selection
-You should use legal streaming services like Disney+ to identify the films and TV Shows/TV series that you are going to watch 2+ times. These films and TV Shows/TV series are what you should own in a physical format. **Quality over quantity!**
+You should use legal streaming services like Disney+ or go to your local libary to borrow Blu-Rays or DVDs to identify the films and TV Shows/TV series that you are going to watch 2+ times. These films and TV Shows/TV series are what you should own in a physical format.
+
+**Quality over quantity!**
 
 ### Where-to-buy
 You should go to second hand stores that sell DVD, Blu-Rays and 4K Blu-Rays and thrift store first to buy DVD, Blu-Rays and 4K Blu-Rays. Only after that you should buy brand new Blu-Rays and 4K Blu-Rays online like on amazon or in person. You can buy second hand Blu-Rays and 4K Blu-Rays online like on Ebay but you assume the risk of not knowing the actual condition of the disks. If you are buying brand new, buy Blu-Ray or 4K Blu-Ray based on your perference and budget, and avoid buying brand new DVDs at all cost unless films and TV Shows/TV series or their special features are only on DVD, or films and TV Shows/TV series are filmed in 480p/SD, or they are really cheap.
