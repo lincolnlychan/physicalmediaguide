@@ -45,6 +45,8 @@ You should choose 4K Blu-Ray if you have a TV that can play in 4K
 
 **You should avoid buying DVDs at all cost unless films and TV Shows/TV series or their special features are only on DVD, or films and TV Shows/TV series are filmed in 480p/SD, or they are really cheap.**
 
+Check the back of the disc for scratches before you buy them.
+
 ### There is my [Linkedlin](https://www.linkedin.com/in/lincoln-chan-0a5a60346/)
 
 
