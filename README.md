@@ -52,9 +52,9 @@ You should choose 4K Blu-Ray if you have a TV that can play in 4K and the best q
 
 All Blu-Rays' audio quality can exceed CD's audio quality most of the time if it has DTS-HD Master Audio Tracks. 
 
-**You should avoid buying DVDs at all cost unless films and TV Shows/TV series or their special features are only on DVD, or films and TV Shows/TV series are filmed in 480p/SD, or they are really cheap.** If you have good internet, streaming and digital will run circles around DVDs all day long.
+**You should avoid buying DVDs at all cost unless films and TV Shows/TV series or their special features are only on DVD, or films and TV Shows/TV series are filmed in 480p/SD, or they are really cheap.** DVDs are easily susceptible to scratches which will cause playback isssues. If you have good internet, streaming and digital will run circles around DVDs all day long.
 
-Check the back of the disc for scratches before you buy them unless they are Brand New.
+Check the back of the disc for scratches before you buy them unless they are Brand New to avoid playback issues.
 
 ### There is my [Linkedlin](https://www.linkedin.com/in/lincoln-chan-0a5a60346/)
 
