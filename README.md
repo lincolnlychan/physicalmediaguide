@@ -35,7 +35,8 @@ You should use legal streaming services like Disney+ or go to your local libary 
 **Quality over quantity!**
 
 ### Where-to-buy
-You should go to second hand stores that sell DVD, Blu-Rays and 4K Blu-Rays and thrift store first to buy DVD, Blu-Rays and 4K Blu-Rays. Only after that you should buy brand new Blu-Rays and 4K Blu-Rays online like on amazon or in person. You can buy second hand Blu-Rays and 4K Blu-Rays online like on Ebay but you assume the risk of not knowing the actual condition of the disks. If you are buying brand new, buy Blu-Ray or 4K Blu-Ray based on your perference and budget, and avoid buying brand new DVDs at all cost unless films and TV Shows/TV series or their special features are only on DVD, or films and TV Shows/TV series are filmed in 480p/SD, or they are really cheap.
+You should go to second hand stores that sell DVD, Blu-Rays and 4K Blu-Rays and thrift store first to buy DVD, Blu-Rays and 4K Blu-Rays. Only after that you should buy brand new Blu-Rays and 4K Blu-Rays online like on amazon or in person. You can buy second hand Blu-Rays and 4K Blu-Rays online like on Ebay but you assume the risk of not knowing the actual condition of the disks. 
+If you are buying brand new, buy Blu-Ray or 4K Blu-Ray based on your perference and budget, and avoid buying brand new DVDs at all cost unless films and TV Shows/TV series or their special features are only on DVD, or films and TV Shows/TV series are filmed in 480p/SD, or they are really cheap.
 
 ### Format Selection
 This is based on the assumption that you are choosing from second hand DVD, Blu-Rays and 4K Blu-Rays
