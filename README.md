@@ -48,7 +48,7 @@ TLDR(Unlimited Budget): 4K Blu-Rays > Blu-Rays
 
 You should choose Blu-Rays most of the time, its anti scratch layer makes it more durable than DVD, it is higher quality than DVD (1080p/HD vs 480p/SD) and it is cheaper than 4K Blu-Ray, and it has only 3 region codes (A,B & C) and 70% of them are region free while DVD has 6 region codes (1-6) and most of them are not region free. 
 
-You should choose 4K Blu-Ray if you have a TV that can play in 4K and the best quality that you can play and access at home
+You should choose 4K Blu-Ray if you have a TV that can play in 4K and want the best quality that you can play and access at home
 
 All Blu-Rays' audio quality can exceed CD's audio quality most of the time if it has DTS-HD Master Audio Tracks(Lossless) or Dolby TrueHD Audio Tracks(Lossless). 
 
