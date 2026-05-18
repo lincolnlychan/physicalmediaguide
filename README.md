@@ -30,7 +30,7 @@ You should avoid buying second hand video players as you don't know the history 
 PlayStation 3-5 and Xbox One/Series can play Blu-Rays and DVDs
 
 ### Film-Selection
-You should use legal streaming services like Disney+ or go to your local libary to borrow Blu-Rays or DVDs to identify the films and TV Shows/TV series that you are going to watch 2+ times. These films and TV Shows/TV series are what you should own in a physical format.
+You should use legal streaming services or go to your local libary to borrow Blu-Rays or DVDs to identify the films and TV Shows/TV series that you are going to watch 2+ times. These films and TV Shows/TV series are what you should own in a physical format.
 
 **Quality over quantity!**
 
