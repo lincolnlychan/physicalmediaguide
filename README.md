@@ -57,5 +57,7 @@ All Blu-Rays' audio quality can exceed CD's audio quality most of the time if it
 Check the back of the disc for scratches before you buy them unless they are Brand New to avoid playback issues.
 
 ### There is my [Linkedlin](https://www.linkedin.com/in/lincoln-chan-0a5a60346/)
+### Please Open a Pull Request or an issue if you want to improve this guide with me. 
+
 
 
