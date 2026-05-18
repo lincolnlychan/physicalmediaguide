@@ -40,7 +40,6 @@ You should go to second hand stores that sell DVD, Blu-Rays and 4K Blu-Rays and 
 If you are buying brand new, buy Blu-Ray or 4K Blu-Ray based on your perference and budget, and avoid buying brand new DVDs at all cost unless films and TV Shows/TV series or their special features are only on DVD, or films and TV Shows/TV series are filmed in 480p/SD, or they are really cheap.
 
 ### Format Selection
-This is based on the assumption that you are choosing from second hand DVD, Blu-Rays and 4K Blu-Rays
 
 TLDR(have budget): Blu-Rays > 4K Blu-Rays 
 
