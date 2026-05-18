@@ -52,7 +52,7 @@ You should choose 4K Blu-Ray if you have a TV that can play in 4K and the best q
 
 All Blu-Rays' audio quality can exceed CD's audio quality most of the time if it has DTS-HD Master Audio Tracks(Lossless) or Dolby TrueHD Audio Tracks(Lossless). 
 
-**You should avoid buying DVDs at all cost unless films and TV Shows/TV series or their special features are only on DVD, or films and TV Shows/TV series are filmed in 480p/SD, or they are really cheap.** DVDs are easily susceptible to scratches which will cause playback isssues. If you have good internet, streaming and digital will run circles around DVDs all day long.
+**You should avoid buying DVDs at all cost unless films and TV Shows/TV series or their special features are only on DVD, or films and TV Shows/TV series are filmed in 480p/SD, or they are really cheap.** DVDs are easily susceptible to scratches which will cause playback isssues. Blu-Ray storage capacity is 25-50 GB while DVD storage capacity is 4.7-8.5 GB. If you have good internet, streaming and digital will run circles around DVDs all day long. 
 
 ### There is my [Linkedlin](https://www.linkedin.com/in/lincoln-chan-0a5a60346/)
 ### Please Open [a Pull Request](https://github.com/lincolnlychan/physicalmediaguide/pulls) or [an issue](https://github.com/lincolnlychan/physicalmediaguide/issues) if you want to improve this guide with me. 
