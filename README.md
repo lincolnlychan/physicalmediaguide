@@ -23,7 +23,7 @@
 ### Players
 You should choose the video players in the following order:
 
-Players that are able to play 4K Blu-Rays > Players that are able to play Blu-Rays > Players that are able to play DVDs
+Players that are able to play 4K Blu-Rays > Players that are able to play Blu-Rays > Players that are able to play DVDs (avoid buying this unless you can not afford a Blu-Ray player)
 
 You should avoid buying second hand video players as you don't know the history of player heads, or laser pickup units/ how hard have the player heads, or laser pickup units been used. 
 
